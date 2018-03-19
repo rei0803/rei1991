@@ -1,2 +1,2 @@
 # shogetsu0803
-hello. 
+hello. Feel free to use my codes.
